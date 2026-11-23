@@ -1,6 +1,6 @@
 # Posts Facebook sauvegardés - Japon
 
-Export du 2026-11-22 à 22:15, heure de Toronto
+Export du 2026-11-22 à 22:16, heure de Toronto
 
 Source : Facebook, collections Japon et Japon - Favoris.
 
@@ -26,7 +26,7 @@ Source : Facebook, collections Japon et Japon - Favoris.
 - [Bonjour,](https://facebook.com/groups/1750160388617988/permalink/4346097582357576/) - sauvegardé le 2026-11-01
 - [Bonjour,](https://facebook.com/groups/1750160388617988/permalink/4345971979036803/) - sauvegardé le 2026-11-01
 - [Petit retour tout frais sur notre voyage en Japon du 18 au 31 octobre (12 jours effectifs sur place hors vols).](https://facebook.com/groups/213969156634792/permalink/1891268795571478/) - sauvegardé le 2026-11-01
-- [Bonjour, première ébauche de mon programme pour septembre 2027 sûrement plein de choses qui ne vont pas, J'arrive a Osak](https://facebook.com/groups/1772994196839033/permalink/2357587648379682/) - sauvegardé le 2026-10-25
+- [Bonjour, première ébauche de mon programme pour septembre 2027 sûrement plein de choses qui ne vont pas 😂,](https://facebook.com/groups/1772994196839033/permalink/2357587648379682/) - sauvegardé le 2026-10-25
 
 ## Japon - Favoris (10)
 
