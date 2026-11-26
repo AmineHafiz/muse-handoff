@@ -1,13 +1,13 @@
 # Posts Facebook sauvegardés - Japon
 
-Export du 2026-11-25 à 05:57, heure de Toronto
+Export du 2026-11-26 à 05:57, heure de Toronto
 
 Source : Facebook, collections Japon et Japon - Favoris.
 
 ## Japon (21)
 
 - [Bonjour je pars en octobre 2027](https://facebook.com/groups/1772994196839033/permalink/2381850085953438/) - sauvegardé le 2026-11-21
-- [Bonsoir. Nous sommes au 2/3 de notre voyage au Japon. Voici notre programme jusqu’à ce soir et nos remarques. Le program](https://facebook.com/groups/1750160388617988/permalink/4370571993243468/) - sauvegardé le 2026-11-21
+- [Bonsoir. Voici notre programme et mes avis à la fin de nos 3 semaines au Japon.](https://facebook.com/groups/1750160388617988/permalink/4370571993243468/) - sauvegardé le 2026-11-21
 - [Bonjour pourriez vous me renseigner sur une esim la mieux adaptée au Japon ? Merci](https://facebook.com/groups/1772994196839033/permalink/2386028018868978/) - sauvegardé le 2026-11-21
 - [Bonjour à tous](https://facebook.com/groups/1772994196839033/permalink/2382099669261813/) - sauvegardé le 2026-11-21
 - [Bonjour tout le monde ! 😊](https://facebook.com/groups/1750160388617988/permalink/4374349816199019/) - sauvegardé le 2026-11-21
@@ -20,7 +20,7 @@ Source : Facebook, collections Japon et Japon - Favoris.
 - [Retour Japon oct 2026](https://facebook.com/groups/1772994196839033/permalink/2370249043780209/) - sauvegardé le 2026-11-07
 - [🇯🇵🏯 Japon en famille – 10 jours pendant les vacances de la Toussaint](https://facebook.com/groups/744239894439424/permalink/1464440439086029/) - sauvegardé le 2026-11-07
 - [🇯🇵 NOTRE PREMIER VOYAGE AU JAPON : 19 JOURS EN FAMILLE ! ❤️](https://facebook.com/groups/213969156634792/permalink/1893487628682928/) - sauvegardé le 2026-11-04
-- [Tokyo is huge! Choose the wrong hotel, and you could spend more time walking than exploring 😓 These 10 well-located hote](https://facebook.com/61557279895722/posts/pfbid02twZdQaBNJtpsRJLfcyXpDuyYQ6YU6R4VrNWyfiFpPCKgJ5JyJvb5yyTn2TmmkQS5l/) - sauvegardé le 2026-11-03
+- [Tokyo is huge! Choose the wrong hotel, and you could spend more time walking than exploring 😓 These 10 well-located hote](https://facebook.com/61557279895722/posts/pfbid0qPvSVQZ1TkpizFWQkB2QPFCi2NLTRrPq66XjRQpHGhWzxs71BcVJZ7cASL4Ybmgjl/) - sauvegardé le 2026-11-03
 - [Budget Japon pour 3 personnes : mon itinéraire et budget perso](https://facebook.com/groups/744239894439424/permalink/1460886292774777/) - sauvegardé le 2026-11-03
 - [Tokyo - Kyoto - Alpes japonaises - Mont Fuji](https://facebook.com/groups/1750160388617988/permalink/4338664233100911/) - sauvegardé le 2026-11-01
 - [Bonjour,](https://facebook.com/groups/1750160388617988/permalink/4346097582357576/) - sauvegardé le 2026-11-01
