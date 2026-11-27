@@ -1,6 +1,6 @@
 # Posts Facebook sauvegardés - Japon
 
-Export du 2026-11-26 à 05:57, heure de Toronto
+Export du 2026-11-27 à 05:57, heure de Toronto
 
 Source : Facebook, collections Japon et Japon - Favoris.
 
@@ -20,7 +20,7 @@ Source : Facebook, collections Japon et Japon - Favoris.
 - [Retour Japon oct 2026](https://facebook.com/groups/1772994196839033/permalink/2370249043780209/) - sauvegardé le 2026-11-07
 - [🇯🇵🏯 Japon en famille – 10 jours pendant les vacances de la Toussaint](https://facebook.com/groups/744239894439424/permalink/1464440439086029/) - sauvegardé le 2026-11-07
 - [🇯🇵 NOTRE PREMIER VOYAGE AU JAPON : 19 JOURS EN FAMILLE ! ❤️](https://facebook.com/groups/213969156634792/permalink/1893487628682928/) - sauvegardé le 2026-11-04
-- [Tokyo is huge! Choose the wrong hotel, and you could spend more time walking than exploring 😓 These 10 well-located hote](https://facebook.com/61557279895722/posts/pfbid0qPvSVQZ1TkpizFWQkB2QPFCi2NLTRrPq66XjRQpHGhWzxs71BcVJZ7cASL4Ybmgjl/) - sauvegardé le 2026-11-03
+- [Tokyo is huge! Choose the wrong hotel, and you could spend more time walking than exploring 😓 These 10 well-located hote](https://facebook.com/61557279895722/posts/pfbid02uFN9g5UqK3yno9ViESF5tGwvk7KWnptF83sWnNEPHWpdfRSWdEvo1AmJqt2kZT42l/) - sauvegardé le 2026-11-03
 - [Budget Japon pour 3 personnes : mon itinéraire et budget perso](https://facebook.com/groups/744239894439424/permalink/1460886292774777/) - sauvegardé le 2026-11-03
 - [Tokyo - Kyoto - Alpes japonaises - Mont Fuji](https://facebook.com/groups/1750160388617988/permalink/4338664233100911/) - sauvegardé le 2026-11-01
 - [Bonjour,](https://facebook.com/groups/1750160388617988/permalink/4346097582357576/) - sauvegardé le 2026-11-01
@@ -28,8 +28,9 @@ Source : Facebook, collections Japon et Japon - Favoris.
 - [Petit retour tout frais sur notre voyage en Japon du 18 au 31 octobre (12 jours effectifs sur place hors vols).](https://facebook.com/groups/213969156634792/permalink/1891268795571478/) - sauvegardé le 2026-11-01
 - [Bonjour, première ébauche de mon programme pour septembre 2027 sûrement plein de choses qui ne vont pas 😂,](https://facebook.com/groups/1772994196839033/permalink/2357587648379682/) - sauvegardé le 2026-10-25
 
-## Japon - Favoris (11)
+## Japon - Favoris (12)
 
+- [Bonsoir. Nous sommes rentrés hier du Japon. Voici notre programme et mes avis à la fin de nos 3 semaines au Japon.](https://facebook.com/groups/1772994196839033/permalink/2391737608298019/) - sauvegardé le 2026-11-27
 - [PAS DE TRAJET CHATGPT](https://facebook.com/groups/1772994196839033/permalink/2385362365602210/) - sauvegardé le 2026-11-23
 - [Bonjour, des Airbnb à me recommander sur Kyoto et Tokyo ? Merci 😉](https://facebook.com/groups/1772994196839033/permalink/2388177898653990/) - sauvegardé le 2026-11-22
 - [Que pensez vous de ce premier jet? Famille de 4: 2adultes et 2 enfants de 9 et 13 ans.](https://facebook.com/groups/1506147689693478/permalink/4173568396284714/) - sauvegardé le 2026-11-13
