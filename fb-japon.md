@@ -1,11 +1,12 @@
 # Posts Facebook sauvegardés - Japon
 
-Export du 2026-11-27 à 05:57, heure de Toronto
+Export du 2026-11-28 à 05:57, heure de Toronto
 
 Source : Facebook, collections Japon et Japon - Favoris.
 
-## Japon (21)
+## Japon (22)
 
+- [Bonjour à tous,](https://facebook.com/groups/1772994196839033/permalink/2393666078105172/) - sauvegardé le 2026-11-27
 - [Bonjour je pars en octobre 2027](https://facebook.com/groups/1772994196839033/permalink/2381850085953438/) - sauvegardé le 2026-11-21
 - [Bonsoir. Voici notre programme et mes avis à la fin de nos 3 semaines au Japon.](https://facebook.com/groups/1750160388617988/permalink/4370571993243468/) - sauvegardé le 2026-11-21
 - [Bonjour pourriez vous me renseigner sur une esim la mieux adaptée au Japon ? Merci](https://facebook.com/groups/1772994196839033/permalink/2386028018868978/) - sauvegardé le 2026-11-21
@@ -20,7 +21,7 @@ Source : Facebook, collections Japon et Japon - Favoris.
 - [Retour Japon oct 2026](https://facebook.com/groups/1772994196839033/permalink/2370249043780209/) - sauvegardé le 2026-11-07
 - [🇯🇵🏯 Japon en famille – 10 jours pendant les vacances de la Toussaint](https://facebook.com/groups/744239894439424/permalink/1464440439086029/) - sauvegardé le 2026-11-07
 - [🇯🇵 NOTRE PREMIER VOYAGE AU JAPON : 19 JOURS EN FAMILLE ! ❤️](https://facebook.com/groups/213969156634792/permalink/1893487628682928/) - sauvegardé le 2026-11-04
-- [Tokyo is huge! Choose the wrong hotel, and you could spend more time walking than exploring 😓 These 10 well-located hote](https://facebook.com/61557279895722/posts/pfbid02uFN9g5UqK3yno9ViESF5tGwvk7KWnptF83sWnNEPHWpdfRSWdEvo1AmJqt2kZT42l/) - sauvegardé le 2026-11-03
+- [Tokyo is huge! Choose the wrong hotel, and you could spend more time walking than exploring 😓 These 10 well-located hote](https://facebook.com/61557279895722/posts/pfbid0qDmSCGHGe37XvBQ9g1PRe9TGASx5tvFA38jxgKtzmb97qTvHJ3bzn5ysCCkvTGMFl/) - sauvegardé le 2026-11-03
 - [Budget Japon pour 3 personnes : mon itinéraire et budget perso](https://facebook.com/groups/744239894439424/permalink/1460886292774777/) - sauvegardé le 2026-11-03
 - [Tokyo - Kyoto - Alpes japonaises - Mont Fuji](https://facebook.com/groups/1750160388617988/permalink/4338664233100911/) - sauvegardé le 2026-11-01
 - [Bonjour,](https://facebook.com/groups/1750160388617988/permalink/4346097582357576/) - sauvegardé le 2026-11-01
